@@ -1,4 +1,4 @@
-## Support : "[https://ko-fi.com/violentsadastic0003](https://ko-fi.com/violentsadastic0003)"
+## Support : "https://ko-fi.com/violentsadastic#"
 
 
 # Nerual-Lab
